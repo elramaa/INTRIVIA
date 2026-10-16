@@ -10,3 +10,6 @@ Sejauh ini, kegiatan INTRIVIA cukup menarik, informatif, serta mendidik kami mah
 
 ## Kesan Pesan Cluster 1 Sejauh Ini 
 Bagi saya, cluster 1 adalah cluster yang solid. Di cluster 1, saya mengenal banyak teman, baik dari sesama prodi Teknik Informatika, maupun dari prodi Teknik Komputer. Di cluster 1, saya ditemani dengan fasilitator, Kak Jose dan Kak Aca yang aktif mengingatkan dan membantu kami dalam mempersiapkan kegiatan dan penugasan INTRIVIA. Saya senang berada di Cluster 1. Makasih Kak Jose, Kak Aca, dan teman-teman semuanya :).
+
+## Harapan Kuliah 
+Saya berharap selama masa perkuliahan ini, saya bisa memperoleh manfaat dari ilmu yang saya dapatkan baik dari perkuliahan di kelas maupun dari kehidupan selama perkuliahan. Saya harap saya tidak hanya aktif di kelas, tetapi juga bisa aktif di luar kelas dengan mengikuti berbagai komunitas/organisasi dan berpartisipasi hingga menjuarai berbagai lomba. Saya juga berharap saya dapat memperluas relasi saya dan bisa berkolaborasi dengan teman-teman maupun orang-orang hebat lainnya. Terakhir, saya harap saya bisa lulus dengan IPK di atas 3,75.
